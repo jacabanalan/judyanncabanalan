@@ -24,6 +24,6 @@ I'm comfortable learning new tools and adapting to different workflows and syste
 
 About My Work
 
-I enjoy being the person behind the scenes who keeps things moving — organizing information, following up on pending items, keeping track of deadlines, and making sure important details don't get missed.
+I enjoy being the person behind the scenes who keeps things moving, organizing information, following up on pending items, keeping track of deadlines, and making sure important details don't get missed.
 
 📩 Open to Executive Assistant, Administrative Assistant, Operations, and Client Support opportunities.
